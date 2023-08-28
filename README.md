@@ -1,0 +1,5 @@
+- 👋 opa, me chamo Cayo
+- 📚 autodidata nas horas vagas
+- ⌨️ atualmente estudo programação no SENAI
+- 📫 aperfeçoando as habilidades em Ux & Ui
+- 🐈 pai de 2 gatinhas
